@@ -1,1 +1,1 @@
-# lug-at-rus-uzb
+# lug'at-rus-uzb
